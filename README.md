@@ -1,1 +1,0 @@
-# andreas-dentech.github.io
